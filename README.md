@@ -1,3 +1,3 @@
 # ChromeProductions
 
-<img width="1280" height="720" alt="bs" src="https://github.com/user-attachments/assets/9e83e90c-ea14-4b57-b8e7-e203ba578187" />
+"C:\Users\urmom\OneDrive\Documents\edited video\bs Linked Comp 01.mp4"
