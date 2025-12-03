@@ -4,5 +4,5 @@
 
 #### MOST RECENT
 <a href="http://www.youtube.com/watch?feature=player_embedded&v=https://youtu.be/YCVATli0ogk?si=raXEWjMr1DfEP7S9
-" target="_blank"><img src="http://img.youtube.com/vi/https://youtu.be/YCVATli0ogk?si=raXEWjMr1DfEP7S9/0.jpg" 
+" target="_blank"><img src="http://img.youtube.com/vi/https://youtu.be/YCVATli0ogk?si=raXEWjMr1DfEP7S9//0.jpg"
 alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
