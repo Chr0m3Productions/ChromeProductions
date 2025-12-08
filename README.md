@@ -10,6 +10,7 @@
 [GETBUCKKK](https://youtu.be/pvxFDtwETFo?si=xsi6D1G0a5pTpQ1x)
 
 #### Book Me
+## 346-762-0323
 ## @ezepeda1106@gmail.com
 ## [@steezzz.e](https://www.instagram.com/steezzz.e/?utm_source=ig_embed&utm_campaign=loading)
 
