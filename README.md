@@ -7,7 +7,7 @@
 
 [SYMERE](https://youtu.be/YCVATli0ogk?si=46Lp57Fg1ofM6LBp)
 
-[GETBUCKKK](https://youtu.be/pvxFDtwETFo?si=xsi6D1G0a5pTpQ1x)
+[stop smoking](https://youtu.be/MgdLPPKmwCM)
 
 #### Book Me
 ## 346-762-0323
