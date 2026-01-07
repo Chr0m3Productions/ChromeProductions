@@ -13,6 +13,6 @@
 ## @ezepeda1106@gmail.com
 ## [@steezzz.e](https://www.instagram.com/steezzz.e/?utm_source=ig_embed&utm_campaign=loading)
 
-![on top.bmp](https://github.com/user-attachments/files/24008418/on.top.bmp)
+<img width="2559" height="1251" alt="websitetemp" src="https://github.com/user-attachments/assets/16074ea5-3073-43ce-ba83-d6fbad2f785c" />
 
 ©Chr0m3Productions
