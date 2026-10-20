@@ -2,17 +2,17 @@
 
 <img width="1280" height="720" alt="bs" src="https://github.com/user-attachments/assets/aeebd41b-8d7d-40d9-8e89-b24a346a7d38" />
 #### MOST RECENT PRODUCTIONS
-[HTX to LA](https://youtu.be/F05d4ebPx6w?si=tQa6vz9QD_3faslR)
+[#howdataddyfeel](https://youtu.be/KxqijkWj220?si=7vHjA_fOlvsnYZua)
 
-[Behind The Camera](https://youtu.be/X8ZI55JIQOk?si=znZFzA2edclZmQCN)
+[pz(feat. Cartisymere) - Visualizer](https://youtu.be/vKG8o5CN9AM?si=8CSaYE5G9p6g5puY)
 
-[Stop Smoking](https://youtu.be/MgdLPPKmwCM)
+[can't land](https://youtu.be/gncexf5m5mI?si=9mQymG8BhfsOB2Dg)
 
 #### Book Me
 ## 346-762-0323
 ## @ezepeda1106@gmail.com
 ## [@steezzz.e](https://www.instagram.com/steezzz.e/?utm_source=ig_embed&utm_campaign=loading)
 
-<img width="2559" height="1294" alt="Screenshot 2026-01-06 230834" src="https://github.com/user-attachments/assets/893e474d-812a-454b-862a-63127237fa04" />
+<img width="1545" height="2000" alt="Azul y Rosa Pastel Almuerzo Menú" src="https://github.com/user-attachments/assets/d30ce031-78f4-413a-9a3d-11aeefcaffa2" />
 
 ©Chr0m3Productions
