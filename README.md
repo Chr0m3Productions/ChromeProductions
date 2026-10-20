@@ -1,12 +1,11 @@
 # ChromeProductions
 
-<img width="1280" height="720" alt="bs" src="https://github.com/user-attachments/assets/aeebd41b-8d7d-40d9-8e89-b24a346a7d38" />
 #### MOST RECENT PRODUCTIONS
 [#howdataddyfeel](https://youtu.be/KxqijkWj220?si=7vHjA_fOlvsnYZua)
 
 [pz(feat. Cartisymere) - Visualizer](https://youtu.be/vKG8o5CN9AM?si=8CSaYE5G9p6g5puY)
 
-[can't land](https://youtu.be/gncexf5m5mI?si=9mQymG8BhfsOB2Dg)
+[can't land - Official Music Video](https://youtu.be/gncexf5m5mI?si=9mQymG8BhfsOB2Dg)
 
 #### Book Me
 ## 346-762-0323
